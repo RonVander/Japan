@@ -14,4 +14,4 @@
 - Onsen are public baths that are part of Japan. Great place to go if your muscles are hurting from the traveling. `They are separated for men and women and swimwear is not allowed`. Enter your side, strip, sit down at a shower and thoroughly wash yourself, rinse and throw some warm buckets of water over all parts of your body. When you're nice and clean climb into the pool and just soak for a while until you're relaxed and on the verge of getting too hot (10-15 min usually but feel it out).
 `* there are exceptions to these but you'll have to look for them.`
 - Learn some basic things in Japanese saying thank you and please goes a long way. [you can find some of these on youtube](https://youtu.be/74aYs6rcbiM).In the bigger cities english speaking people are more prevalent but once outside them there are a lot less even in the hotels. Google translate can help here and there for very rough communication just keep your sentences short and to the point.
-- Nagoya is boring, but your experience may vary.
+- Nagoya is boring, but your experience may vary. Nagoya is just another big city both tokio and osaka do that better and are more interesting/unique.
