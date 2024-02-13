@@ -1,6 +1,5 @@
 # Visiting Japan top tips
 
-
 ## Things to keep in mind when planning japan
 - Get a mobile pocket wifi it is easier to deal with than a Sim card. But check before you go what the limits are on the provider you use as some have small limits a day (like 1gb) and then switch you to small band 56k speed connections if you go over. I used wifi buddy and was pretty happy with it. Bring a power bank if you have one as both your phone and wifi might need a charge during the day with heavy use.
 - The Jr rail pass is great if you want to travel all over using the high speed trains shinkanzen. You don't have to worry about tickets just get on and sit down in the non reserved area. Some lines are not officially included in the pass but nobody seems to check it so we just boarded with no issue. The rail pass includes all Jr lines and some ferries. So book as much travel as you can in the week(s) you have your pass to get the most out of it.
@@ -15,3 +14,18 @@
 `* there are exceptions to these but you'll have to look for them.`
 - Learn some basic things in Japanese saying thank you and please goes a long way. [you can find some of these on youtube](https://youtu.be/74aYs6rcbiM).In the bigger cities english speaking people are more prevalent but once outside them there are a lot less even in the hotels. Google translate can help here and there for very rough communication just keep your sentences short and to the point.
 - Nagoya is boring, but your experience may vary. Nagoya is just another big city both tokio and osaka do that better and are more interesting/unique.
+
+## Food to try
+### Obviously:
+- Sushi
+- Ramen
+
+### must try:
+- Udon
+- okonomiyaki
+- takoyaki
+- omurice
+- Japanese Curry (preferably in a maid cafe ^_^)
+- Tonkatsu
+- Yakitori
+- Unagi
